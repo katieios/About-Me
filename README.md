@@ -1,5 +1,7 @@
 About Me
 
-Spencer Curtis
+Kathleen Higgins
 
-Favorite Color: Blue
+Favorite Color: Purple
+
+Favorite Food - Pizza
